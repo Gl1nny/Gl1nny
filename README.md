@@ -20,7 +20,7 @@ Just a friendly person floating through life — ꪀꪮ drama just curiousity, B
 
 “𝘕𝘰”: Pedo, Darkship, Support incest, Disrespectful toward any religion, homophobic, Racist, R@pe jokes/sexual.
 
-𝘽𝙚𝙛𝙤𝙧𝙚 𝙮𝙤𝙪 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 (abt me); Intense mood swings, Lowk Sensitive, fearful-avoidant leanings, swears alot, Unfunny jokes, Easily triggered, My grammar is BAD icl but hope y'all understand, Awkward at first but if we shared the same interest i wont stop talking.
+𝘽𝙚𝙛𝙤𝙧𝙚 𝙮𝙤𝙪 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 (abt me); Intense mood swings, Lowk Sensitive, fearful-avoidant leanings, swears alot, Unfunny jokes, Easily triggered, My grammar is BAD icl but hope y'all understand, Awkward at first but if we shared the same interest i wont stop talking, Flirt as a joke.
 
   (ᐡ⸝⸝ᴗ˛ᴗ⸝⸝ᐡ) just that baii! thx for visiting my page 
   
